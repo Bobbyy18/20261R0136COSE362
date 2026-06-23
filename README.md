@@ -11,7 +11,7 @@ Ayaka - 2023320144
 
 Amani - 2024320307
 
-Luai - 2025952748
+Luai - 2025952748 - https://github.com/LuaiE/20261R0136COSE362
 
 Imran - 2023320043
 
